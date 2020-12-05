@@ -1,4 +1,4 @@
 # herenow
-Here I am: Avignon, France
+Here I am: Playa del Carmen, Mexico
 
-Here I go: London, UK
+Here I go: Nowhere. #Pandemiclyfe
