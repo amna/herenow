@@ -1,4 +1,4 @@
 # herenow
-Here I am: Playa del Carmen, Mexico
+Here I am: Malta (it's a country, I promise)
 
-Here I go: Nowhere. #Pandemiclyfe
+Here I go: Scotland
